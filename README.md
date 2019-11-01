@@ -1,2 +1,3 @@
 # Ineffable-World
 Completed M.arch from CEPT UNIVERSITY(School of Architecture). Work in various prestigious organization as a fellow- INTBAU-IRAN, Center of Science and Technology for Rural Development.His masters thesis was on role of natural cosmic elements in Architecture"LIGHT AND THE MAKING OF INEFFABLE SACRED SPACE". He is a researcher, a travel enthusiasts and experienced in hand graphics. As a student he co-ordinates a prestigious architectural competition of NASA-GSEN TROPHY  
+"I beleive inorder to understand a beauty of an element say architecture one really needs to unpack and disect each and every experiences of that element and thise experiences are magic in your life which is ineffable." self quote
